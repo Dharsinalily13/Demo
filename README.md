@@ -16,3 +16,9 @@ My Father rus a Textile company.
 My Mother is a Home Maker.
 I have sibling and his name is Rithik Dharshan.R.K
 He is studing in 10th standard.
+ROLE MODEL:
+Elon Musk is my role model and inspiration 
+I love his hardwork that leads to his suceess.
+I dont have any favorite person.
+If IT is something else, I love Anime and KPOP.
+MY Favorite person in KPOP Industry is Lisa from Blackpink and Jung Kook from BTS
