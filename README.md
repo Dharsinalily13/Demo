@@ -22,3 +22,10 @@ I love his hardwork that leads to his suceess.
 I dont have any favorite person.
 If IT is something else, I love Anime and KPOP.
 MY Favorite person in KPOP Industry is Lisa from Blackpink and Jung Kook from BTS
+TO MY DEAR PYTHON FACULTY:
+I really love coding,but dont know basics .
+give me more sums to solve 
+i dont have anything to share sir.
+you said you create educational videos in tamil
+do you have youtube channel or any other source
+give me that sir
