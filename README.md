@@ -1,6 +1,6 @@
 Personal information.
 My Name is Dharsina .
-I am from .
+I am from karur.
 I am from CSE department in KGISL college.
 I studied in kongu matric school in P.Velur , Namakkal
 I really love coding,but dont know anything about that
